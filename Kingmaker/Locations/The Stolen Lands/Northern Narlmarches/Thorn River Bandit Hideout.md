@@ -1,0 +1,1 @@
+The hideout of the [[Thorn River Bandits]], situated on [[Thorn River]] in the [[Northern Narlmarches]].

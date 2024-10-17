@@ -1,0 +1,1 @@
+A cleric encountered by [[The Obsidian Eye]] near [[The Temple of the Elk]] on their way to raid the [[Thorn River Bandit Hideout]].

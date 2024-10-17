@@ -1,0 +1,1 @@
+A formidable fighter, the purveyor of [[Aldori Manor]], and the sponsor of [[The Charter]] by which [[The Obsidian Eye]] intends to settle a kingdom, as well as the competing party led by [[Tartucio]].

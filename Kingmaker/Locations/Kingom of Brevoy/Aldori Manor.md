@@ -1,0 +1,1 @@
+The manor of [[Jamandi Aldori|Lady Jamandi Aldori]], situated in [[Restov]]. It was raided during the night after [[The Feast at Aldori Manor]]

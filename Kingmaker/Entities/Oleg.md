@@ -1,0 +1,3 @@
+An old warrior that once fought alongside [[Conláed Quinn]] in defense of the royal capitol. He now runs [[Oleg's Trading Post]] with his wife [[Svetlana]].
+
+He received [[The Obsidian Eye]] and told them of the regular and rehearsed raids conducted on [[Oleg's Trading Post|Oleg's Post]] by the [[Thorn River Bandits]], and is indebted to [[The Obsidian Eye|The Eye]] for killing the attackers and hunting down their colleagues' encampment, at great expense to themselves.

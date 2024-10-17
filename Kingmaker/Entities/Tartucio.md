@@ -1,0 +1,1 @@
+An arrogant and abrasive gnome, present at [[The Feast at Aldori Manor]] and the head of another [[The Charter|Chartered]] guild of kingdom-settlers including [[Ameri]] (resigned), [[Harrim]] and [[Valorie]].

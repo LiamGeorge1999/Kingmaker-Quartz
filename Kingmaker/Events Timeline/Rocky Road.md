@@ -1,0 +1,5 @@
+[[Ronán Quinn|Ronán]], [[Thaeden Evergreen|Thaeden]], [[Victor]], [[Jaethal]] and [[Lindzi]] made their way from [[Aldori Manor]] westward towards [[Oleg's Trading Post]] via [[Navatka's Crossing]], stalked along the way by some bandits. Passing through the crossing, they heard tell of a bandit lord and a mad hermit, and stopped for the night.
+
+They found a trader heading west to [[Oleg's Trading Post|Oleg's Post]] and bargained to protect him and his wares - just turnips - in exchange for a ride on his cart.
+
+Partway along, the trader abandoned the party in the night and tried to sell them out to the thorn river bandits. The bandits attacked, and the trader got killed in the counter raid. The party took his cart and ventured forwards, detouring to visit [[Fort Serenko]] due to a landslide blocking their path and being forced to abandon the wagon and horses on the way.

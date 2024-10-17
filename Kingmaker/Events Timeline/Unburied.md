@@ -1,0 +1,5 @@
+[[Ronán Quinn|Ronán]] and [[Thaeden Evergreen|Thaeden]] return to [[Oleg's Trading Post]] accompanied by [[Septus Valron]], with [[Jaethal]]'s corpse in tow, and break the bad news to a mostly recovered Lindzi.
+
+They consult everyone they can about the death rites of [[Urgathoa]]'s followers until [[Thaeden Evergreen|Thaeden]] is presented with a vision depicting the burning of [[Jaethal|Jaethal]]'s corpse and relays the details of the experience to [[Ronán Quinn|Ronán]], who decides that burial is likely closer to the correct practice and is in any case more reversible, and decides to commit [[Jaethal|Jaethal]]'s remains to the earth a short distance behind [[Oleg's Trading Post|Oleg's]] and turn in for the night.
+
+The next morning, [[Jaethal|Jaethal]]'s grave is found empty, and the party leave to revisit the [[Northern Narlmarches]], heralded by that poor omen.

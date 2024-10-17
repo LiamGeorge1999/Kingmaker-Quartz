@@ -1,0 +1,1 @@
+A principled and noble-spirited knight who was present for [[The Feast at Aldori Manor]]. Despite her character, she became a member of [[Tartucio]]'s party after [[The Aldori Manor Raid]].

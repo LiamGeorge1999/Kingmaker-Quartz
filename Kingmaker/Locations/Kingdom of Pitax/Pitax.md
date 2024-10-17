@@ -1,0 +1,1 @@
+The eponymous capitol city of the [[Kingdom of Pitax]], and the suspected sponsor of [[The Aldori Manor Raid]] conducted by the [[Thorn River Bandits]].

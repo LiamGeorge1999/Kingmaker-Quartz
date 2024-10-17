@@ -1,0 +1,1 @@
+A dwarf cleric who was present at [[The Feast at Aldori Manor]]. Despite being bombastic and solemn in turns and plainspokenly hateful of his leader, [[Harrim]] became a member of [[Tartucio]]'s party after [[The Aldori Manor Raid]].

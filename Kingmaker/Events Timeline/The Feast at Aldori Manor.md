@@ -1,0 +1,3 @@
+[[Ronán Quinn|Ronan]] and [[Thaeden Evergreen|Thaeden]] are at [[Aldori Manor]] responding to a summons by [[Lady Jamandi Aldori|Lady Aldori]] for adventurers. The nature of the quest involved was not revealed until a feast, but turned out to be that adventurers would form parties to settle kingdoms in the [[The Stolen Lands|Stolen Lands]], after reclaiming land from the bandits and other forces that occupied them.
+  
+  At the feast they met a variety of adventurers of different ilks, including [[Valorie]] the knight, [[Jaethal]] the undead necromancer, [[Lindzi]] the Bard, [[Ameri]] the barbarian, [[Harrim]] the Cleric, and [[Tartucio]] the wizard. They made fast friends with some, and fast enemies with others.

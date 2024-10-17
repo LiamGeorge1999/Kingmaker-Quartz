@@ -1,0 +1,1 @@
+Provides certain assurances that the [[Kingom of Brevoy]] - in the body of [[Lady Jamandi Aldori]] - will support the founding of new kingdoms in [[The Stolen Lands]] by [[The Obsidian Eye]] and the party led by [[Tartucio]].
